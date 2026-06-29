@@ -1,4 +1,4 @@
-# 
+# VIP mean reversion trading bot modèles for Mac OS | Professionnel mean reversion trading bot modèles for PC Windows. Featuring trading de contrats à terme and analyse de la dynamique — optimized for maximum performance.
 
 
 
